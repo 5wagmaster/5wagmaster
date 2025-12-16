@@ -1,7 +1,6 @@
 <div align="center">
 
-<img width="514" height="486" alt="_5weetmeat___SweetMeat__3_-removebg-preview" src="https://github.com/user-attachments/assets/4007036d-d895-4f6e-93ba-b9edceab4234" />
-
+![@5weetmeat · SweetMeat (6)](https://github.com/user-attachments/assets/0b5cb0c4-82f5-4bf0-8ec7-49e4b413bb37)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)

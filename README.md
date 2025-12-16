@@ -12,11 +12,7 @@
 
 [strawpage](https://uhghhhmyheadhurts.straw.page)   ᯓ★   [my tree!](https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4)  ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
 
-My Spelling isn't very good, sorry about that <br> 
 
-  I can, and will be annoying/embarassing to be around so let me know to tone it down and i'll stop. <br>
-
-I'm usually AFK, so please W2I! 
 
 <br> одна пшеничная марка — это ультра, братан, где все мои мууты за одну пшеничную марку !
 

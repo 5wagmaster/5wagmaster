@@ -1,6 +1,6 @@
 <div align="center">
 
-[![download (76)](https://github.com/user-attachments/assets/46043a69-bf05-49c1-b73a-eee7b02beb74)](https://files.catbox.moe/qyurjo.jpg)
+<img width="500" height="500" alt="mituna_captor_homestuck__6_-removebg-preview" src="https://github.com/user-attachments/assets/15f9c407-829d-4dd1-af4b-cac0f11a2e3f" />
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)

@@ -1,16 +1,28 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**5wagmaster/5wagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![download (76)](https://github.com/user-attachments/assets/46043a69-bf05-49c1-b73a-eee7b02beb74)
 
-Here are some ideas to get you started:
+![6](https://files.catbox.moe/ue04jm.png)
+![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<div align="center"> he/him
+<div align="center"> russian/eng
+
+[strawpage](https://uhghhhmyheadhurts.straw.page)   ᯓ★   [my tree!](https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4)  ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
+
+My Spelling isn't very good, sorry about that <br> 
+
+  I can, and will be annoying/embarassing to be around so let me know to tone it down and i'll stop. <br>
+
+I'm usually AFK, so please W2I! 
+
+<br> одна пшеничная марка — это ультра, братан, где все мои мууты за одну пшеничную марку !
+
+
+<br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+![6](https://files.catbox.moe/ue04jm.png)

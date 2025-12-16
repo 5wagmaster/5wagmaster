@@ -1,6 +1,6 @@
 <div align="center">
 
-![@5weetmeat · SweetMeat (6)](https://github.com/user-attachments/assets/0b5cb0c4-82f5-4bf0-8ec7-49e4b413bb37)
+![Bleehhhh](https://github.com/user-attachments/assets/ff3c1031-65ab-4dce-b56b-fcbb26ed000d)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)

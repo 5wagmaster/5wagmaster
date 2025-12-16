@@ -1,6 +1,6 @@
 <div align="center">
 
-![Bleehhhh](https://github.com/user-attachments/assets/ff3c1031-65ab-4dce-b56b-fcbb26ed000d)
+
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)

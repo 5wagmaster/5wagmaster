@@ -1,6 +1,7 @@
 <div align="center">
 
-<img width="500" height="500" alt="mituna_captor_homestuck__6_-removebg-preview" src="https://github.com/user-attachments/assets/15f9c407-829d-4dd1-af4b-cac0f11a2e3f" />
+<img width="514" height="486" alt="_5weetmeat___SweetMeat__3_-removebg-preview" src="https://github.com/user-attachments/assets/4007036d-d895-4f6e-93ba-b9edceab4234" />
+
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)

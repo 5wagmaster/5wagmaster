@@ -11,7 +11,7 @@
 <div align="center"> he/him
 <div align="center"> russian/eng
 
-[strawpage](https://yaystrawpageyaya.straw.page)   ᯓ★   [my tree!](https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4)  ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
+[strawpage](https://yaystrawpageyaya.straw.page)       ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
 
 
 

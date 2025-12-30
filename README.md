@@ -1,6 +1,6 @@
 <div align="center">
 
-![ㅤㅤㅤㅤㅤㅤㅤㅤ_ ࣪ ׅ  ✰__](https://github.com/user-attachments/assets/912d2b51-8a9c-4f49-811b-c22b722982fa)
+![header by aze (1)](https://github.com/user-attachments/assets/f9806505-54ce-458d-807c-04e21d0ef6be)
 
 
 ![6](https://files.catbox.moe/ue04jm.png)

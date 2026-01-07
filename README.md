@@ -11,7 +11,7 @@
 <div align="center"> he/him
 <div align="center"> russian/eng
 
-[strawpage](https://huntersucksballs.straw.page)       ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
+[strawpage](https://gaylittlefaggots.straw.page)      ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
 
 
 

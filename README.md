@@ -1,5 +1,7 @@
 hai this is a huge wip bc im changing my whole github....
 
+![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
+
 
 
 [strawpage](https://gaylittlefaggots.straw.page)      ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)

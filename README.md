@@ -1,14 +1,6 @@
-<div align="center">
-
-![This is ASS!](https://github.com/user-attachments/assets/9ca887c6-c26a-4f51-a337-40f334a329da)
-
-![6](https://files.catbox.moe/ue04jm.png)
-![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
+hai this is a huge wip bc im changing my whole github....
 
 
-
-<div align="center"> he/him
-<div align="center"> russian/eng
 
 [strawpage](https://gaylittlefaggots.straw.page)      ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
 

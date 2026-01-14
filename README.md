@@ -1,6 +1,6 @@
 <div align="center">
 
-![header by aze (1)](https://github.com/user-attachments/assets/f9806505-54ce-458d-807c-04e21d0ef6be)
+![gabberstag renard + futret](https://github.com/user-attachments/assets/b59ca85c-6bc5-4731-82c6-084ea03e14ab)
 
 
 ![6](https://files.catbox.moe/ue04jm.png)

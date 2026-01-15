@@ -1,4 +1,4 @@
-hai this is a huge wip bc im changing my whole github....
+<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 

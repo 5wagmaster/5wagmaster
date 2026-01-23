@@ -6,7 +6,7 @@
 
 
 
-[strawpage](https://huntersdopeass.straw.page)      ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
+<img width="623" height="400" alt="IMG_8142-removebg-preview" src="https://github.com/user-attachments/assets/5209858e-0391-41f6-8e95-9330fd119a5f" />
 
 
 

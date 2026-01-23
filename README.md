@@ -4,7 +4,7 @@
 
 
 
-[strawpage](https://gaylittlefaggots.straw.page)      ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
+[strawpage](https://huntersdopeass.straw.page)      ★ [sign my ata!](https://maliciouswhiteboy.atabook.org/)
 
 
 

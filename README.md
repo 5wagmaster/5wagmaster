@@ -13,6 +13,6 @@
 
 
 <div align="center">
- fyi: DONT COPY MY PONIES. im sick and tired of SEEING CLONES of my ponies faces. PLEASE fuck off.
+ fyi: i am not a proshipper. uhhh...
 
 

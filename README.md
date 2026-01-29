@@ -13,6 +13,6 @@
 
 
 <div align="center">
- fyi: i am not a proshipper. uhhh...
+
 
 

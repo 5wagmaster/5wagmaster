@@ -4,9 +4,9 @@
   
 <div align="center"> 
   
-   ★ [sign my ata](https://maliciouswhiteboy.atabook.org)
+   [sign my ata](https://maliciouswhiteboy.atabook.org)
 
-<img width="500" height="778" alt="IMG_1495" src="https://github.com/user-attachments/assets/903181e6-b1d8-4984-8b50-439c845cd0f5" />
+<img width="562" height="444" alt="One_wheat_October_Halloween______-removebg-preview" src="https://github.com/user-attachments/assets/daf97e99-3b33-46e0-a6d1-fb49aabe0e41" />
 
 
 

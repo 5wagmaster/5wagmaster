@@ -2,7 +2,7 @@
 
   ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
   
-<div align="center"> 
+
 
 ⁘ ͜　　𝘩unt𝑒r﹔c𝑒il﹒𝗄𝗂𝗇 𝗇𝖺𝗆𝖾𝗌　𓏶　4𝗍𝖾𝖾ղ　::　he / him　 ͜ ⁘
 

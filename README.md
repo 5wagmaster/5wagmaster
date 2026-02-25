@@ -12,7 +12,7 @@
 ⋅ 　int / 𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　𝗆𝗈𝗌𝗍𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻(?)　𝗐2𝗂　 ⋅　
 
 
-𐂯
+⸝⸝
   
    [ata](https://maliciouswhiteboy.atabook.org) ,  [strawpage](https://yaystrawpage.straw.page) , [pronouns page!](https://pronouns.cc/@TruckStopFerret09)
 

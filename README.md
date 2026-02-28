@@ -15,7 +15,7 @@
 
 ⸝⸝
   
-   [ata](https://maliciouswhiteboy.atabook.org) ,  [strawpage](https://yaystrawpage.straw.page) , [pronouns page!](https://pronouns.cc/@TruckStopFerret09)
+   [ata](https://maliciouswhiteboy.atabook.org) ,  [strawpage](https://callingmebackh0me.straw.page/)
 
  
 

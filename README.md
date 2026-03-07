@@ -10,7 +10,7 @@
   　hunter  ﹔    ciel   ﹒     𝗄𝗂𝗇 𝗇𝖺𝗆𝖾𝗌   
 
 
-　int  𓏺　 𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　𝗆𝗈𝗌𝗍𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻 !
+　int  𓏺　 𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　iwcare unless friends
 
 
 ⸝⸝

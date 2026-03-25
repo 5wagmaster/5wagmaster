@@ -7,20 +7,7 @@
 
 <div align="center">
 
-
-  
-
-
-
-  　hunter  ﹔    will   
-
-
-　int  𓏺　 𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　hi im chill i swear
-
-
-⸝⸝
-
-
+<img width="545" height="458" alt="Screenshot_25-3-2026_211046_githublayout straw page-removebg-preview" src="https://github.com/user-attachments/assets/0fb3d4a8-a2df-4626-83a6-80ebb326bb06" />
 
   
    [ata](https://maliciouswhiteboy.atabook.org)            ﹔            [strawpage](https://itwillbeokaysoon.straw.page)

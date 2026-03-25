@@ -15,7 +15,7 @@
   　hunter  ﹔    will   
 
 
-　int  𓏺　 𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　iwcare unless friends
+　int  𓏺　 𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　hi im chill i swear
 
 
 ⸝⸝

@@ -7,7 +7,8 @@
 
 <div align="center">
 
-<img width="707" height="353" alt="Screenshot_26-3-2026_92858_githublayout straw page-removebg-preview" src="https://github.com/user-attachments/assets/c63736bf-7609-47c2-84c4-f38457473635" />
+<img width="631" height="396" alt="Screenshot_29-3-2026_212550_githublayout straw page-removebg-preview" src="https://github.com/user-attachments/assets/73e8b77f-7656-4ac4-a0a0-f71e07b0c37f" />
+
   
    [ata](https://maliciouswhiteboy.atabook.org)            ﹔            [strawpage](https://itwillbeokaysoon.straw.page)
 

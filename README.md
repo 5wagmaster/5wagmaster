@@ -7,21 +7,30 @@
 
 <div align="center">
 
-<img width="632" height="395" alt="Screenshot_1-4-2026_23221_githublayout straw page-removebg-preview" src="https://github.com/user-attachments/assets/4198b3b5-de56-4fa0-aafc-4ad430e14590" />
 
   
-   [ata](https://maliciouswhiteboy.atabook.org)            ﹔            [strawpage](https://okwyay.straw.page)
+
+
+
+  　hunter  ﹔    will   
+
+
+ 𓏺　hi im chill i swear
+
+
+⸝⸝
+
+
+
+  
+   [ata](https://maliciouswhiteboy.atabook.org)            ﹔            [strawpage](https://itwillbeokaysoon.straw.page)
 
  
 
 
+   
 
-
-<img width="466" height="194" alt="IMG_3758" src="https://github.com/user-attachments/assets/c1eaadb3-176f-47bb-a3ba-ea9700ce527f" />
-
-
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <div align="center">
 

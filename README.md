@@ -12,7 +12,7 @@
 
 
 
-  　hunter  ﹔    will   
+  
 
 
  𓏺　hi im chill i swear 𓏺　

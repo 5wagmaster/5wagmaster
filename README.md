@@ -15,10 +15,10 @@
   
 
 
- 𓏺　hi im chill i swear 𓏺　
+ 　hi i'm chill i swear 
 
 
-⸝⸝
+
 
 
 

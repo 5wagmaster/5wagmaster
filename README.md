@@ -23,7 +23,7 @@
 
 
   
-   [ata](https://maliciouswhiteboy.atabook.org)            ﹔            [strawpage](https://itwillbeokaysoon.straw.page)
+   [ata](https://maliciouswhiteboy.atabook.org)            ﹔            [strawpage](https://okaaayyaya.straw.page)
 
  
 

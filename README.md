@@ -34,7 +34,8 @@
 
 <div align="center">
 
-<img width="466" height="194" alt="IMG_3758" src="https://github.com/user-attachments/assets/5537b165-8071-4c01-b2dd-2f23cd171b34" />
+<img width="1130" height="296" alt="IMG_3809" src="https://github.com/user-attachments/assets/0412313a-f5a7-4d5a-bd64-c2f7062ec010" />
+
 
 
 

@@ -12,14 +12,14 @@
 
 
 
-  
+
+  　hunter  ﹔    will
 
 
- 　hi i'm chill i swear 
+　yo yo go sign mah stuf
 
 
-
-
+⸝⸝
 
 
   

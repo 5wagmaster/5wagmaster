@@ -11,12 +11,11 @@
   
 
 
+ ${\textsf{\color{#b76227}hunter 𓏺 }}$  ${\textsf{\color{#b35131}or 𓏺 }}$ ${\textsf{\color{#a5300a}kin names 𓏺 }}$ 
 
+ ${\textsf{\color{#a5300a}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𓏺 }}$
 
-  　hunter  ﹔    gourdy 
-
-
-　yo yo go sign mah stuf
+　 ${\textsf{\color{#b76227}russian/eng  𓏺 }}$   ${\textsf{\color{#b35131}c+h comf  𓏺 }}$   ${\textsf{\color{#a5300a}sign ata/strawp! 𖹭  }}$  
 
 
 

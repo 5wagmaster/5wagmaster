@@ -30,11 +30,10 @@
 
    
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <div align="center">
 
-<img width="1130" height="296" alt="IMG_3809" src="https://github.com/user-attachments/assets/0412313a-f5a7-4d5a-bd64-c2f7062ec010" />
+<img width="556" height="449" alt="IMG_4042-removebg-preview" src="https://github.com/user-attachments/assets/abab62f7-78e4-4a37-946f-7adcb78b1fae" />
 
 
 

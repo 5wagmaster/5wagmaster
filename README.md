@@ -22,7 +22,7 @@
 
 
   
- ${\textsf{\color{#b76227}ʚ 𓏺 }}$     [ata](https://maliciouswhiteboy.atabook.org)            .           [strawpage](https://okaaayyaya.straw.page)  ${\textsf{\color{#b76227}ଓ 𓏺 }}$  
+ ${\textsf{\color{#b76227}ʚ 𓏺 }}$     [ata](https://maliciouswhiteboy.atabook.org)                [strawpage](https://okaaayyaya.straw.page)  ${\textsf{\color{#b76227}ଓ 𓏺 }}$  
 
  
 

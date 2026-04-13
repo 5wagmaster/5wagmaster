@@ -18,6 +18,9 @@
 　 ${\textsf{\color{#b76227}russian/eng  𓏺 }}$   ${\textsf{\color{#b35131}c+h comf  𓏺 }}$   ${\textsf{\color{#a5300a}sign ata/strawp! 𖹭  }}$  
 
 
+![tumblr_d1da5b70eb59cc603ac2829d2b17d9d3_590e48f0_250](https://github.com/user-attachments/assets/6dbb91ef-fa2c-4602-916f-fffca81a0f7b)
+
+
 
 
 

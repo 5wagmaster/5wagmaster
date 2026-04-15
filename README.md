@@ -11,7 +11,7 @@
   
 
 
- ${\textsf{\color{#b76227}hunter 𓏺 }}$  ${\textsf{\color{#b35131}or 𓏺 }}$ ${\textsf{\color{#a5300a}kin names 𓏺 }}$ 
+ ${\textsf{\color{#b76227}hunter 𓏺 }}$  ${\textsf{\color{#b35131}or  }}$ ${\textsf{\color{#a5300a}kin names 𓏺 }}$ 
 
  ${\textsf{\color{#a5300a}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𓏺 }}$
 

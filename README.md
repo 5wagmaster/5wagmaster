@@ -25,7 +25,7 @@
 
 
   
- ${\textsf{\color{#b76227}ʚ 𓏺 }}$     [ata](https://maliciouswhiteboy.atabook.org)      ${\textsf{\color{#b35131} + 𓏺 }}$           [strawpage](https://pawsatyouandwagsmytail.straw.page)  ${\textsf{\color{#b76227}ଓ 𓏺 }}$  
+ ${\textsf{\color{#b76227}ʚ 𓏺 }}$     [ata](https://maliciouswhiteboy.atabook.org)      ${\textsf{\color{#b35131} + 𓏺 }}$           [strawpage](https://pawsatyouandwagsmytail.straw.page)  ${\textsf{\color{#b35131}ଓ 𓏺 }}$  
 
  
 

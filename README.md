@@ -11,11 +11,11 @@
   
 
 
- ${\textsf{\color{#b76227}hunter 𓏺 }}$  ${\textsf{\color{#b35131}or  }}$ ${\textsf{\color{#a5300a}kin names }}$ 
+ ${\textsf{\color{#cfce00}hunter 𓏺 }}$  ${\textsf{\color{#cfce00}or  }}$ ${\textsf{\color{#cfce00}kin names }}$ 
 
- ${\textsf{\color{#a5300a}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ }}$
+ ${\textsf{\color{#cfce00}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ }}$
 
-　 ${\textsf{\color{#b76227}russian/eng  𓏺 }}$   ${\textsf{\color{#b35131}c+h comf  𓏺 }}$   ${\textsf{\color{#a5300a}sign ata/strawp! 𖹭  }}$  
+　 ${\textsf{\color{#cfce00}russian/eng  𓏺 }}$   ${\textsf{\color{#cfce00}c+h comf  𓏺 }}$   ${\textsf{\color{#cfce00}sign ata/strawp! 𖹭  }}$  
 
 
 
@@ -25,11 +25,10 @@
 
 
   
- ${\textsf{\color{#b76227}ʚ  }}$     [ata](https://maliciouswhiteboy.atabook.org)      ${\textsf{\color{#b35131} +  }}$           [strawpage](https://pawsatyouandwagsmytail.straw.page)  ${\textsf{\color{#b35131}ଓ }}$  
+ ${\textsf{\color{#cfce00}ʚ  }}$     [ata](https://maliciouswhiteboy.atabook.org)      ${\textsf{\color{#cfce00} +  }}$           [strawpage](https://pawsatyouandwagsmytail.straw.page)  ${\textsf{\color{#cfce00}ଓ }}$  
 
- 
+<img width="342" height="225" alt="download (22)" src="https://github.com/user-attachments/assets/a03c5c2f-6d98-431b-b8cd-5d43224f1ad7" />
 
-<img width="622" height="401" alt="tumblr_0cd425aab651673b68b07a3cb796b1cd_9de6aa79_2048-removebg-preview" src="https://github.com/user-attachments/assets/9c80665e-9000-477c-bb01-6a8b95ff8ad5" />
 
    
 
